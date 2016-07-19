@@ -1,0 +1,1 @@
+# splashscreen-a-l-ekran-
